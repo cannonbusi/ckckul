@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 16时19分30秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>猪肉价格触底反弹，生猪养殖标的集体走强</h3><br><p>海外对冲基金组团调研白酒区域龙头，省外扩张增速曝光。<br><br> | 来源：<code>www.duioo.com
+</code></p><br><br><h3>汉服产业市场规模上半年突破100亿元，国风服饰成为日常潮流</h3><br><p>中超联赛场均上座人数突破2.5万，球市全面回暖。<br><br> | 来源：<code>www.zheejia.com
+</code></p><br><br><h3>国际油价大幅上涨，油气开采板块全线拉升</h3><br><p>极端暴雨灾害预警，水利基建标的全线上涨。<br><br> | 来源：<code>www.kingslawfirm.com
+</code></p><br><br><h3>中国男子射箭队世锦赛团体夺冠，打破韩国长期垄断</h3><br><p>全国重点海域入海排污口整治完成，海洋污染源头管控加强。<br><br> | 来源：<code>www.longnancun.com
+</code></p><br><br><h3>医疗器械创新绿色通道，创新器械板块异动</h3><br><p>宁德时代单日大涨6.2%，动力电池赛道迎来集体反弹。<br><br> | 来源：<code>www.ym5184.com
+</code></p><br><br><h3>天赐材料异动拉升4.9%，电解液龙头成本优势凸显</h3><br><p>实控人溢价15%增持碳纤维企业，传递长期发展信心。<br><br> | 来源：<code>www.lvyuepai.com
+</code></p><br><br><h3>隆基绿能光伏技术迭代：HPBC+TOPCon的技术领先性</h3><br><p>2026年AI产业赋能经济增长超万亿，成为数字经济核心引擎。<br><br> | 来源：<code>www.youngstrong.cn
+</code></p><br><br><h3>美伊冲突出现缓和信号，双方开启间接谈判寻求停火路径</h3><br><p>重庆路桥异动拉升2.4%，区域路桥业务盈利稳定。<br><br> | 来源：<code>www.41yvs.cn
+</code></p><br><br><h3>全国风电发电量上半年同比增长38%，绿电交易规模突破2000亿千瓦时</h3><br><p>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购。<br><br> | 来源：<code>www.hospitalcdm.cn
+</code></p><br><br><h3>房贷利率下调后二手房成交回暖，家居家电需求回升</h3><br><p>券商研究所扎堆调研AI芯片设计标的，大模型推理芯片流片成功。<br><br> | 来源：<code>www.mayilt.cn
+</code></p><br><br><h3>锦浪科技涨超7.0%，组串式逆变器出口高增</h3><br><p>超160家机构到访锂电回收龙头，回收处理产能利用率超90%。<br><br> | 来源：<code>www.ebtea.cn
+</code></p><br><br><h3>全国黄土高原水土流失治理率达70%，黄河泥沙含量锐减</h3><br><p>全国矿山生态修复面积年度完成超2万公顷，废弃矿山变绿洲。<br><br> | 来源：<code>www.seodoc.cn
+</code></p><br><br><h3>晶澳科技全球化运营：光伏组件龙头的海外市场份额扩张</h3><br><p>超220家机构到访AI教育龙头，付费用户规模环比大增。<br><br> | 来源：<code>www.skillrace.cn
+</code></p><br><br><h3>粤高速A异动拉升2.6%，大湾区车流量高增</h3><br><p>赣锋锂业回收业务布局：锂电回收的长期成长空间解析。<br><br> | 来源：<code>www.bibistar.cn
+</code></p><br><br><h3>中科院紫东太初大模型2.0发布，全模态能力国际领先</h3><br><p>华为星闪技术大规模商用，相关产业链标的领涨。<br><br> | 来源：<code>www.jingnews.cn
+</code></p><br><br><h3>科大讯飞冲高回落，AI算力主线分歧中仍有韧性</h3><br><p>中国平安权重护盘，大金融板块托底A股指数。<br><br> | 来源：<code>www.hrnhug.cn
+</code></p><br><br><h3>固德威户用储能布局：储能赛道细分龙头的成长路径</h3><br><p>中国冲浪队首次获得世界冠军，水上运动版图持续扩大。<br><br> | 来源：<code>www.cqxsx.cn
+</code></p><br><br><h3>中国现代五项队世锦赛夺得金牌，全能项目实现突破</h3><br><p>三安光电化合物半导体布局：LED+碳化硅的长期空间。<br><br> | 来源：<code>www.gmsz.cn
+</code></p><br><br><h3>天齐锂业涨超5.8%，锂矿自给率优势持续凸显</h3><br><p>美联储连续降息后美元走弱，原油价格迎来趋势性反弹。<br><br> | 来源：<code>0315etu.com
+</code></p><br><br><h3>金龙汽车海外客车出口翻倍，前三季度业绩预增超60%</h3><br><p>外资资管举牌固态电解质企业，下一代电池技术获外资重仓。<br><br> | 来源：<code>streamnet-chain.com

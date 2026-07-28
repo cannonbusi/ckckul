@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分46秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>吉林高速异动拉升1.7%，区域路网业务逐步复苏</h3><br><p>光伏玻璃价格单月上涨8%，玻璃龙头盈利弹性大幅释放。<br><br> | 来源：<code>https://yazhouzaixian.cn
+</code></p><br><br><h3>华为盘古大模型3.0行业版上线，覆盖矿山、气象、金融十大领域</h3><br><p>5年期LPR下调带动房企开发贷利率下行，房企盈利改善。<br><br> | 来源：<code>https://yazhouzhongwenzimuzaixianguankan.cn
+</code></p><br><br><h3>全国绿证交易规模突破1亿个，覆盖超20个高耗能行业</h3><br><p>全球生物医药市场规模突破1.8万亿美元，创新药研发加速。<br><br> | 来源：<code>https://yazhouzipai.org.cn
+</code></p><br><br><h3>生物育种企业开启新股申购，转基因商业化落地节奏领先</h3><br><p>上半年全国光伏组件出口同比增长28%，全球市场份额超92%。<br><br> | 来源：<code>https://yazhouzonghe.cn
+</code></p><br><br><h3>中国自行车队世锦赛夺得金牌，场地自行车项目实现突破</h3><br><p>阿里云通义千问算力集群扩容，支撑万亿级参数大模型训练。<br><br> | 来源：<code>https://yazhouzonghejingpin.cn
+</code></p><br><br><h3>多地推出文旅惠民卡，年卡销量破百万撬动百亿消费</h3><br><p>北方稀土突破前期平台，短线弹性有望释放。<br><br> | 来源：<code>https://yazhouzonghewang.cn
+</code></p><br><br><h3>机构专用席位净买入许继电气5800万，特高压龙头获加仓</h3><br><p>NBA总决赛凯尔特人4-2夺冠，塔图姆全票当选FMVP。<br><br> | 来源：<code>https://yazhouzonghewang.com.cn
+</code></p><br><br><h3>全球智能手机市场回暖，二季度出货量同比增长7%</h3><br><p>圣邦股份模拟芯片布局：国产模拟芯片龙头的成长路径。<br><br> | 来源：<code>https://yeye-lu.com.cn
+</code></p><br><br><h3>航发动力放量拉升5.2%，军工发动机订单落地加速</h3><br><p>存量房贷利率下调释放居民现金流，可选消费板块受益。<br><br> | 来源：<code>https://yi-qicao.com.cn
+</code></p><br><br><h3>璞泰来负极材料盈利改善，前三季度业绩预增超40%</h3><br><p>闽南文化生态保护区建设成效显著，非遗活态传承活力迸发。<br><br> | 来源：<code>https://yi-querqusanqu.cn
+</code></p><br><br><h3>国内降息政策出台，地产链标的集体上涨</h3><br><p>六氟磷酸锂价格单月上涨10%，电解液龙头盈利修复。<br><br> | 来源：<code>https://yiben-dao.com.cn
+</code></p><br><br><h3>中国男足世预赛1-0击败韩国，提前锁定2026世界杯出线名额</h3><br><p>江苏建工放量上涨3.3%，江苏区域基建投资回暖。<br><br> | 来源：<code>https://yiduiyi-shipin-app.com.cn
+</code></p><br><br><h3>QFII大幅加仓预制菜龙头，B端渠道扩张获海外机构看好</h3><br><p>锂电铝箔价格上调5%，铝箔上市公司盈利弹性释放。<br><br> | 来源：<code>https://yihao-ent-pro.com.cn
+</code></p><br><br><h3>产业资本集中增持AI教育龙头，付费用户高增获资本布局</h3><br><p>头部机构组团到访医美耗材龙头，新品获批进度超预期。<br><br> | 来源：<code>https://yin-jiao.com.cn
+</code></p><br><br><h3>沪深交易所降费，券商经纪业务标的集体上涨</h3><br><p>房贷利率动态调整机制优化，重点城市房贷利率进一步下行。<br><br> | 来源：<code>https://yin-qi.com.cn
+</code></p><br><br><h3>1年期LPR下调5BP，实体经济融资成本稳步下行</h3><br><p>头部机构组团到访风电轴承龙头，大兆瓦轴承市占率提升。<br><br> | 来源：<code>https://yin-se-shipin.com.cn
+</code></p><br><br><h3>华为昇腾算力集群规模破万卡，支撑超百家大模型企业训练</h3><br><p>箱板纸价格上涨5%，包装产业链盈利改善。<br><br> | 来源：<code>https://yin-wen-se-shuo.com
+</code></p><br><br><h3>外资资管连续加仓跨境支付标的，近3月持仓占比提升至6%</h3><br><p>理想汽车家庭用户定位：精准产品定位下的销量爆发逻辑。<br><br> | 来源：<code>https://yin-wen.com.cn
+</code></p><br><br><h3>科技成长行情延续：AI算力、半导体、光模块的景气度排序</h3><br><p>全国全民健身日活动启动，全国超万场赛事覆盖千万群众。<br><br> | 来源：<code>https://yindi-jia.com.cn
+</code></p><br><br><h3>意大利经济增速超预期，旅游业拉动经济强劲增长</h3><br><p>蔚来汽车毛利率转正，单季业绩预告环比大幅改善。<br><br> | 来源：<code>https://yinghuakanfan.com.cn

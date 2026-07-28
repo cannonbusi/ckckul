@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>上海斯诺克大师赛开幕，丁俊晖击败世界第一闯入四强</h3><br><p>中国西电异动拉升3.6%，输配电设备集团整合加速。<br><br> | 来源：<code>https://huan-qi-yi-zu.com.cn
+</code></p><br><br><h3>剧本杀门店超5万家，沉浸式文旅体验成为年轻消费热点</h3><br><p>长安汽车涨停封板，突破后的延续性如何判断。<br><br> | 来源：<code>https://huang-jiujiu.com.cn
+</code></p><br><br><h3>亿纬锂能多赛道布局：消费电池+动力电池+储能的协同</h3><br><p>国家版本馆全部建成开放，典藏中华文脉珍贵资源。<br><br> | 来源：<code>https://huang-mantiantang.com.cn
+</code></p><br><br><h3>伊利股份涨超3.2%，乳制品行业需求回暖</h3><br><p>国内自驾游人次破10亿，新能源自驾路线成热门选择。<br><br> | 来源：<code>https://huang-wed.cn
+</code></p><br><br><h3>北京马拉松参赛规模扩至3万人，报名人数破50万创新高</h3><br><p>存量房贷利率下调释放居民现金流，可选消费板块受益。<br><br> | 来源：<code>https://huang-you.com.cn
+</code></p><br><br><h3>头部券商到访游戏出海龙头，海外流水增速数据首次公开</h3><br><p>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购。<br><br> | 来源：<code>https://huang-youdaquan.com.cn
+</code></p><br><br><h3>机构资金集中买入航发动力1.8亿，军工龙头获机构抱团</h3><br><p>阿里云通义千问算力集群扩容，支撑万亿级参数大模型训练。<br><br> | 来源：<code>https://huanggua-shipin-app.com.cn
+</code></p><br><br><h3>钯价连续上涨9%，汽车尾气催化板块盈利改善</h3><br><p>科大讯飞放量上涨6.8%，AI教育产品落地加速。<br><br> | 来源：<code>https://huanggua-shipin.cn
+</code></p><br><br><h3>中兴通讯沿趋势线上行，通信板块的轮动机会</h3><br><p>长三角一体化新规划落地，长三角本地股集体拉升。<br><br> | 来源：<code>https://huanggua-shipin.com.cn
+</code></p><br><br><h3>正邦科技债务重组：养殖企业困境反转的案例解析</h3><br><p>亨通光电海洋能源布局：光通信龙头的第二成长曲线。<br><br> | 来源：<code>https://huanggua-shipinxiazai.com.cn
+</code></p><br><br><h3>北京马拉松参赛规模扩至3万人，报名人数破50万创新高</h3><br><p>阳光电源研发投入：逆变器龙头持续保持技术领先的原因。<br><br> | 来源：<code>https://huanggua-wangzhan.com.cn
+</code></p><br><br><h3>蔚来汽车放量上涨8.8%，换电网络覆盖持续扩大</h3><br><p>中国中车全球轨道交通布局：一带一路带来的增量空间。<br><br> | 来源：<code>https://huanggua-yingyuan.com.cn
+</code></p><br><br><h3>降准释放资金超万亿，流动性宽松支撑A股估值抬升</h3><br><p>通威股份低位反弹，超跌后的修复行情持续性判断。<br><br> | 来源：<code>https://huangguachuanmei.com.cn
+</code></p><br><br><h3>纸价开启新一轮提价潮，造纸板块盈利迎来修复</h3><br><p>交控科技异动拉升4.5%，城轨信号系统订单爆发。<br><br> | 来源：<code>https://huangguan-sports-pro.com.cn
+</code></p><br><br><h3>游资知名席位联手买入固德威5000万，储能标的获追捧</h3><br><p>QFII集中调研海上风电标的，深远海项目订单引热议。<br><br> | 来源：<code>https://huangguanqiutan.com.cn
+</code></p><br><br><h3>洛阳推出“汉服游”配套服务，全城汉服租赁店超千家</h3><br><p>卓胜微放量拉升5.7%，射频芯片行业景气度回升。<br><br> | 来源：<code>https://huangguashipinapp.cn
+</code></p><br><br><h3>政策性降息支持汽车消费，新能源汽车板块迎来定向利好</h3><br><p>社保基金现身工业AI龙头调研，行业渗透率数据首次公开。<br><br> | 来源：<code>https://huangguashipinwangyeban.com.cn
+</code></p><br><br><h3>2026年文旅市场全面繁荣，文化自信融入大众日常生活</h3><br><p>葛洲坝水电工程技术：全球水电建设龙头的技术积累。<br><br> | 来源：<code>https://huangguashipinzaixian.cn
+</code></p><br><br><h3>全国城市黑臭水体治理完成率100%，居民亲水空间增加</h3><br><p>北京国际铁人三项赛举办，吸引全球千名选手参赛。<br><br> | 来源：<code>https://huangguashipinzaixianguankan.cn
+</code></p><br><br><h3>券商研究所扎堆调研车载芯片龙头，车规级认证进度超预期</h3><br><p>餐饮消费促进政策，餐饮连锁标的全线异动。<br><br> | 来源：<code>https://huangguatv.com.cn

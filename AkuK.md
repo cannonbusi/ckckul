@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分24秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>结构性降息精准支持制造业，高端制造板块获定向利好</h3><br><p>杭州亚运会后首个体育年，全国赛事活动数量同比增长40%。<br><br> | 来源：<code>https://shenye-manhua.com
+</code></p><br><br><h3>北向资金连续增持核电设备龙头，近1月持仓增幅超25%</h3><br><p>河北建工涨超2.7%，雄安新区基建订单饱满。<br><br> | 来源：<code>https://shequhaijiao.cn
+</code></p><br><br><h3>中国西电异动拉升3.6%，输配电设备集团整合加速</h3><br><p>企业债券融资利率大幅下行，直接融资占比进一步提升。<br><br> | 来源：<code>https://shequhaijiao.com.cn
+</code></p><br><br><h3>国内AI服务器出货量上半年同比增长120%，产业链全面爆发</h3><br><p>矿产资源勘探政策，地质勘查标的全线异动。<br><br> | 来源：<code>https://shibajin.org.cn
+</code></p><br><br><h3>沪股通席位单日买入美的集团2.1亿，家电龙头获外资增持</h3><br><p>锦浪科技涨超7.0%，组串式逆变器出口高增。<br><br> | 来源：<code>https://shijiebei-duqiu.com.cn
+</code></p><br><br><h3>机构席位联手买入三一重工3亿，工程机械龙头获资金布局</h3><br><p>降准释放资金补充银行流动性，信贷投放能力显著提升。<br><br> | 来源：<code>https://shijiebei-mai-qiu.com.cn
+</code></p><br><br><h3>智慧矿山标的登陆北交所，煤矿智能化改造订单同比翻倍</h3><br><p>长安汽车涨停封板，自主车企销量超预期引爆行情。<br><br> | 来源：<code>https://shiliushequ.cn
+</code></p><br><br><h3>恒瑞医药出海进展：创新药产品海外授权的价值重估</h3><br><p>QFII集中调研国产EDA企业，全流程工具突破引关注。<br><br> | 来源：<code>https://shinu.com.cn
+</code></p><br><br><h3>比亚迪Q3销量破百万，业绩预告同比翻倍</h3><br><p>闽南文化生态保护区建设成效显著，非遗活态传承活力迸发。<br><br> | 来源：<code>https://shipin-zaixianguankan.com.cn
+</code></p><br><br><h3>央行加大公开市场操作力度，资金面维持平稳宽松</h3><br><p>高管团队集体增持低空飞行器标的，合计增持超7000万。<br><br> | 来源：<code>https://shipin91.cn
+</code></p><br><br><h3>特变电工涨超3.3%，新能源业务盈利持续释放</h3><br><p>国产儿童动画全网播放量突破250亿，陪伴新一代青少年成长。<br><br> | 来源：<code>https://shipinchengren.cn
+</code></p><br><br><h3>中芯国际单季盈利创历史新高，半导体板块全线走强</h3><br><p>主线行情里不要轻易切换赛道：拿住核心标的才能吃到大行情。<br><br> | 来源：<code>https://shipinhuanggua.cn
+</code></p><br><br><h3>海大集团饲料市占率提升，单季业绩预告超预期</h3><br><p>全国淮河生态经济带建设推进，流域水质优良比例达95%。<br><br> | 来源：<code>https://shipinmogu.com.cn
+</code></p><br><br><h3>基金公司集体到访机器人控制器标的，国产控制器市占率提升</h3><br><p>北方华创涨超6.3%，半导体设备国产替代进度提速。<br><br> | 来源：<code>https://shipinxiangjiao.cn
+</code></p><br><br><h3>机构资金集中买入闻泰科技1.1亿，半导体ODM龙头获抱团</h3><br><p>知名私募大手笔增持储能电池标的，海外户储订单获资本布局。<br><br> | 来源：<code>https://shixiongashixiong.com.cn
+</code></p><br><br><h3>头部公募调研汽车电子标的，车规芯片出货量环比大增</h3><br><p>中国射箭队世锦赛打破世界纪录，首次夺得团体金牌。<br><br> | 来源：<code>https://shoujihuangyou.com.cn
+</code></p><br><br><h3>科大讯飞放量上涨6.8%，AI教育产品落地加速</h3><br><p>中国神华创阶段新高2.8%，高股息属性持续获资金追捧。<br><br> | 来源：<code>https://shuiguopaijieshuozaixianguankan.com.cn
+</code></p><br><br><h3>海外资管组团调研光伏逆变器标的，海外市占率突破30%</h3><br><p>大模型在能源领域应用，电网调度效率提升25%。<br><br> | 来源：<code>https://shuimitao-shipin.com.cn
+</code></p><br><br><h3>新能源汽车销量上半年突破550万辆，市场渗透率达48%</h3><br><p>人民币汇率升值至6.8关口，航空板块汇兑收益大幅增加。<br><br> | 来源：<code>https://shuimitaowangzhan.com.cn
+</code></p><br><br><h3>储能温控龙头开启新股申购，海外客户覆盖全球头部厂商</h3><br><p>水产品价格集体上涨，水产养殖板块迎来涨价催化。<br><br> | 来源：<code>https://shuixian-zhibo.com.cn
